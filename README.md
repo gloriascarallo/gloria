@@ -1,2 +1,2 @@
-# gloria
+# Gloria
 this is deltarune tomorrow
