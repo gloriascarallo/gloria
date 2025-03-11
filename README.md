@@ -1,2 +1,2 @@
 # GLORIA
-this is deltarune tomorrow
+this is deltarune tomorrow (i am toby i confirm)
